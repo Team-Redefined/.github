@@ -17,8 +17,13 @@ There can be times where we do animations for fun!
 
 ## How can I get into contact with the developers?
 
+
 Sox: Discord (user: functionsilly)
+
 Inakuro: DOESN'T WANT INTERACTION
+
 Rodney: DOESN'T WANT INTERACTION
+
 Sage: DOESN'T WANT INTERACTION 
+
 Route7: DOESN'T WANT INTERACTION
