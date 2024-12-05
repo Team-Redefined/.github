@@ -20,7 +20,7 @@ There can be times where we do animations for fun!
 
 Sox: Discord (user: functionsilly)
 
-Inakuro: DOESN'T WANT INTERACTION
+Inakuro: Discord (user: inakuro)
 
 Rodney: DOESN'T WANT INTERACTION
 
