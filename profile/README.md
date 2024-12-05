@@ -22,7 +22,7 @@ Sox: Discord (user: functionsilly)
 
 Inakuro: Discord (user: inakuro)
 
-Rodney: DOESN'T WANT INTERACTION
+Rodney: Website (link: https://linktr.ee/RodneyAnImaginativePerson )
 
 Sage: DOESN'T WANT INTERACTION 
 
