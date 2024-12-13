@@ -25,5 +25,3 @@ Inakuro: Discord (user: inakuro)
 Rodney: Website (link: https://linktr.ee/RodneyAnImaginativePerson )
 
 Sage: DOESN'T WANT INTERACTION 
-
-Route7: DOESN'T WANT INTERACTION
