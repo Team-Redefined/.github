@@ -18,7 +18,7 @@ There can be times where we do animations for fun!
 ## How can I get into contact with the developers?
 
 
-Sox: Website (link: https://soxprofilereal.carrd.co)
+LumixX: Website (link: https://soxprofilereal.carrd.co)
 
 Inakuro: Discord (user: inakuro)
 
