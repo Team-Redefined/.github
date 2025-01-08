@@ -22,6 +22,6 @@ LumixX: Website (link: https://soxprofilereal.carrd.co)
 
 Inakuro: Discord (user: inakuro)
 
-Rodney: Website (link: https://linktr.ee/RodneyAnImaginativePerson )
+Rodney: Website (link: https://linktr.ee/rodney528)
 
 Sage: DOESN'T WANT INTERACTION 
