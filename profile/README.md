@@ -12,7 +12,7 @@ You can follow us on our youtube channel for updates --> https://youtube.com/@tr
 ## Is Team Redefined only doing games?
 
 No! 
-There can be times where we do animations for fun!
+There can be times where we do other activities like playing games for fun! 
 
 
 ## How can I get into contact with the developers?
