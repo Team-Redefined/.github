@@ -18,7 +18,7 @@ There can be times where we do other activities like playing games for fun!
 ## How can I get into contact with the developers?
 
 
-LumixX: Website (link: https://soxprofilereal.carrd.co)
+LumixX: Website (link: https://lumixx.carrd.co/)
 
 Inakuro: Discord (user: inakuro)
 
