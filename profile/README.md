@@ -26,4 +26,4 @@ Rodney: Website (link: https://linktr.ee/rodney528)
 
 Sage: DOESN'T WANT INTERACTION 
 
-Brandon: Discord (user: kittysleeperold)
+Brandon: Discord (user: kittysleeper)
